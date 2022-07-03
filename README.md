@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **jannatun0107@gmail.com**
 
-- ⚡ Fun fact **I think**
+- ⚡ Fun fact **I think I love travelling**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
